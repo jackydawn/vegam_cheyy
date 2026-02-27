@@ -10,7 +10,7 @@ All will leave their words behind.
 
 ## 🏆 Hall of Fame
 
-🥇 First: _To Be Revealed_
+🥇 fu bruh: _To Be Revealed_
 🥈 Second: _So Close_
 🥉 Third: _Still Iconic_
 
